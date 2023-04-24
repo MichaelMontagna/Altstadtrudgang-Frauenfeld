@@ -1,1 +1,1 @@
-# Altstadtrudgang-Frauenfeld
+# Altstadtrundgang-Frauenfeld
